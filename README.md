@@ -1,7 +1,6 @@
 春秋云vpn官方网站
 ====
 最新地址：https://chunqiu.iocone.com/
-TG群组：https://t.me/chunqiuyun
 
 简介
 -------
